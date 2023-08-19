@@ -21,8 +21,3 @@ Md. Mohsin Kabir sir for this amazing journey. Looking forward to seeing you aga
 
 
 - Mumtahina, Rajieb
-
-
-
-
-// presentation video will be uploaded soon!
